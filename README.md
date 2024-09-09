@@ -8,4 +8,4 @@ HOW TO USE ADJAA RA1N ?
 
 ANY ERROR FEEL FREE TO CONTACT ME ON TELEGRAM : https://t.me/gsmadjaa05/
 
-OFFICIAL WEBSITE : https://gsmadjaa.xyz/
+OFFICIAL WEBSITE : https://gsmadjaa.com/
